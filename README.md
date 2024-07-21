@@ -1,6 +1,10 @@
 ### Hi there, I'm 𝓡𝓪𝓱𝓾𝓵 𝓡𝓪𝓳 👋
 
+<img align='left' src=![octocat-1721547679373](https://github.com/user-attachments/assets/8a07fec0-5a21-4d8a-8c2d-7bcfaf6010e8)
+width='150"'>
 <img align='right' src='https://github.com/Rishit-dagli/Rishit-dagli/blob/master/images/octocat-anime.gif' width='150"'>
+
+
 <img align='center' src='https://github.com/Eilaluth/Eilaluth/blob/main/img/AboutMe-elaina.png' width='500"'>
 
 ## I'm a 𝑳𝒆𝒂𝒓𝒏𝒆𝒓 𝒂𝒏𝒅 𝑪𝒓𝒆𝒂𝒕𝒐𝒓
